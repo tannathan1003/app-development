@@ -26,8 +26,8 @@ Eugene Cordero as Casey: A TVA receptionist. Cordero also portrays Hunter K-5E i
 
 Wunmi Mosaku as Hunter B-15: A high ranking Hunter of the TVA determined to stop the variant that has been killing Minutemen troops.
 
-Tara Strong voices Miss Minutes: Miss Minutes the animated anthropomorphic clock mascot of the TVA.[24][25] After being created solely to introduce the TVA, the writers found more ways to include Miss Minutes in the season since they found her to be a fun character. Miss Minutes has a "protective" relationship to He Who Remains, with Strong believing she understands "how important her role is and how important it is to the universe".
+Tara Strong voices Miss Minutes: Miss Minutes the animated anthropomorphic clock mascot of the TVA. After being created solely to introduce the TVA, the writers found more ways to include Miss Minutes in the season since they found her to be a fun character. Miss Minutes has a "protective" relationship to He Who Remains, with Strong believing she understands "how important her role is and how important it is to the universe".
 
 Owen Wilson as Mobius M. Mobius: An agent of the TVA who specializes in the investigations of particularly dangerous time criminals.
 
-Sylvie: A variant of Loki who is attacking the "Sacred Timeline" and has enchantment powers.[29][30] She does not consider herself to be a Loki, using the name "Sylvie" as an alias.
+Sylvie: A variant of Loki who is attacking the "Sacred Timeline" and has enchantment powers. She does not consider herself to be a Loki, using the name "Sylvie" as an alias.
